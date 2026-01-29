@@ -1,0 +1,1 @@
+# symple-python-project-ideas
